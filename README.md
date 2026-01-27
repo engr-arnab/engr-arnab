@@ -1,5 +1,5 @@
 # 💫 About Me:
-🎓 First-Year Computer Science Student at Bangalore Institute of Technology
+🎓 Second-Year Computer Science Student at Bangalore Institute of Technology
 
 
 ## 🌐 Socials:
